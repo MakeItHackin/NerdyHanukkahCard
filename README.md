@@ -10,7 +10,7 @@ Please review the instructions for inserting the battery.
 PLEASE WATCH THE VIDEO DEMONSTRATION AS IT WILL SHOW EVERY FEATURE AND FUNCTION OF THE CARD.  
 YOU CAN SKIP MESSAGES AND SONGS BY HOLDING DOWN THE BUTTON WHILE POWERING ON!  
 
-## YouTube Demonstration: TBA
+## YouTube Demonstration: https://youtu.be/l6Dvy5i0QmM
 
 ## PURCHASE A CARD:
 https://www.etsy.com/listing/1342268140/  
