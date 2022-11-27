@@ -17,4 +17,4 @@ https://www.etsy.com/listing/1342268140/
 https://www.tindie.com/products/28637/
 
 
-As of March 21, 2022, the current hardware version is v1.1. 
+As of November 26, 2022, the current hardware version is v1.1. 
